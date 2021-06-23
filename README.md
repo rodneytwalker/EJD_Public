@@ -1,2 +1,2 @@
 # Eric_Stinks
-eric stinks
+eric DOES NOT stink!
